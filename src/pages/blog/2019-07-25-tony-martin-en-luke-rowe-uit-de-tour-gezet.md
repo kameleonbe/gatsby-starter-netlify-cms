@@ -2,7 +2,7 @@
 templateKey: blog-post
 title: Tony Martin en Luke Rowe uit de Tour gezet
 date: 2019-07-25T05:17:58.039Z
-description: Knokken voor de beste plaats
+description: Knokken voor de beste plaats in het peleton net voor de Alpen
 featuredpost: true
 featuredimage: /img/chemex.jpg
 tags:
