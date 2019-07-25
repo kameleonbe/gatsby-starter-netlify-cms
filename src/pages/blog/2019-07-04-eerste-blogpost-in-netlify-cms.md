@@ -1,7 +1,7 @@
 ---
 templateKey: blog-post
 title: Tour de France 2019 na de Tourmalet
-date: 2019-07-04T16:49:56.281Z
+date: 2019-07-19T16:49:56.281Z
 description: Wordt het nog eens een ouderwetse tour?
 featuredpost: true
 featuredimage: /img/blog-index.jpg
