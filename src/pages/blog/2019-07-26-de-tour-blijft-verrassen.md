@@ -10,7 +10,7 @@ tags:
   - Julian Alaphillipe
   - Col de l'Iseran
 ---
-Het was al een ongewone tour. Veel gewin voor België en Nederland. Leuke etappes. De beste renner van het voorjaar in het geel en achter hem aan een gezelschap waarvan we dachten dat ze ook na het overschrijden van de eindmeet op de Champs Elysees nog gingen doorrijden, elkaar terwijl het wit uit de ogen kijkend. Stonden ze toch leuk in de top van het algemene klassement en wat moet het een ramp zijn om daaruit weg te vallen. Toegegeven er zat er een bij die wel met punch in de aanval ging: Egan Bernal, de piepjonge Team Ineos man uit Columbia.
+Het was al een ongewone tour. Veel gewin voor België en Nederland. We waren het niet echt meer gewoon de laatste jaren. Leuke etappes en de beste renner van het voorjaar in het geel. Achter hem aan een gezelschap favorieten waarvan we dachten dat ze ook na het overschrijden van de eindmeet op de Champs Elysees nog gingen doorrijden, elkaar terwijl het wit uit de ogen kijkend. Stonden ze toch leuk in de top van het algemene klassement op enkele seconden van elkaar en wat moet het een ramp zijn 6de te eindigen ipv 5de. Toegegeven, er zat er een bij die wel met punch in de aanval ging: Egan Bernal, de piepjonge Team Ineos man uit Colombia.
 
 Vroeg in de rit ging de Franse klimhoop Thibaut Pinot er al uit. In de vorige etappe over de Galibier had deze blijkbaar reeds een spierscheur aan het linkerbeen opgelopen en stapte moedeloos en gebroken voor het oog van de camera's in de volgauto. De Tour en Pinot: het leidt voorlopig nog niet tot een succesverhaal. Exit 1 Franse hoop op geel in Parijs. Die lag nu volledig bij Alaphillipe.
 
