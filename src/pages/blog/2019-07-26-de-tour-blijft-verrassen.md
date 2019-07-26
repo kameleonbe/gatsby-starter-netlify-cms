@@ -1,0 +1,17 @@
+---
+templateKey: blog-post
+title: De Tour blijft verrassen
+date: 2019-07-26T15:29:09.123Z
+description: Drama en anti-climax op weg naar Tignes
+featuredpost: true
+featuredimage: /img/products-grid2.jpg
+tags:
+  - Egan Bernal
+  - Julian Alaphillipe
+  - Col de l'Iseran
+---
+Het was al een ongewone tour. Veel success voor België en Nederland. Leuke etappes. De beste renner van het voorjaar in het geel en achter hem aan een gezelschap waarvan we dachten dat ze ook na de Champs Elysees nog gingen doorrijden. Stonden ze toch leuk in de top van het algemene klassement en wat moet het een ramp zijn om daaruit weg te vallen. Toegegeven er zat er een bij die wel met punch in de aanval ging: Egan Bernal, de piepjonge Team Ineos man uit Columbia.
+
+Vroeg in de rit ging de Franse klimhoop Thibaut Pinot er al uit. In de vorige etappe over de Galibier had deze blijkbaar reeds een spierscheur aan het linkerbeen opgelopen en stapte moedeloos en gebroken voor het oog van de camera's in de volgauto. Exit 1 Franse hoop op geel in Parijs. Het lag nu volledig op de schouders van Alaphillipe.
+
+Deze loste echter op de flanken van de Col de l'Iseran en had op de top 2 minuten achterstand op de ontketende Bernal. Deze passage zou meteen gelden als rituitslag want verder kwam de rit niet. Tijdens de afdaling werd het peleton op de hoogte gesteld van hevige hagelbuien inde omgeving van de voet  van de slotklim. Etappe geneutraliseerd en een anticlimax. Geletruidrager Alaphillipe duidelijk teleurgesteld ondanks zijn achterstand had hij er duidelijk nog wel zin in. Egan Bernal wellicht in het geel na vandaag en op naar Parijs. Morgen rest nog de eindeloze klim naar Val Thorens. Bevestigd Bernal daar of komt er nog een verrassing uit de hoed?
